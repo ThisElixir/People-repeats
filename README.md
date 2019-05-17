@@ -9,10 +9,13 @@ Since the 1900s behavior pattern prediction has been improving, systems like The
 -Create relatable characters on stories that people Identify with and want to see
 -Help people understand themselves and others
 -Position a person on a role that best suits their natural skills and defects 
--Prevent or manage friction between people
--Generally predict individual and group behavior 
+-Predict or manage relationships between individuals and groups for good or bad
 
-When a person learns the basic behavior patterns and learns to 
+When a person learns the basic behavior patterns and is able to categorize others and themselves they are able to:
+
+-Manage people to improve or diminish their personality advantages over others to some extent.
+-Predict other people's reaction to themselves and others, also explain the past behavior. 
+-Exploit weaknesses or empower habilities people may or may not be aware they have.
 
 
 

@@ -6,7 +6,7 @@ As people get older and history is recorded, it has been noticed that human beha
 Those systems are not 100% accurate all the time with everybody, because they are tainted with the superstition and politics of the time they were developed, setting the noise aside and looking at it scientifically, we see more clearly every day the patterns that have been revealed by the ancient knowledge.
 
 
-Since the 1900s behavior pattern prediction has been improving. Systems like MBTI, ENEAGRAM, and THE FIVE PREFERENCES are very popular with current psychologists for work environments and has become an obsession for some internet communities because of its accuracy. On its modern state, the science of categorizing and predicting the behavior of people has helped people who know about it with:
+Since the 1900s behavior pattern prediction has been improving. Systems like MBTI, ENEAGRAM, and THE FIVE PREFERENCES are very popular with current psychologists for work environments and has become an obsession for some internet communities because of its accuracy. On its modern state, the science of categorizing and predicting the behavior has helped people who know about it with:
 
 
 -Creating relatable characters on stories that people Identify with and want to see

@@ -22,9 +22,9 @@ When a person learns the basic behavior patterns and they can categorize others 
 -Predict other people's reaction to themselves and others, also explain the past behavior. 
 -Exploit weaknesses or empower abilities people may or may not be aware they have.
 
+How to identify a pattern
 
-
-
+Detecting patterns at first glance accurately is possible once you have a faint idea of the way others picture themselves, and it increases in accuracy of prediction as you come close the the inner narrative which is always consistent within itself
 
 
 

@@ -32,5 +32,5 @@ Detecting patterns at first glance accurately is possible once you have a faint 
 
 The pitfalls 
                         
-                       There is no good and bad, some behaviors trigger others and some actions are related to the next by things like similar ideals, similar original circumstances, the point is that groups of details that usually happen together can be used to predict people's future actions, and their skills, and their likely problems and vices of thought. 
+There is no good and bad, some behaviors trigger others and some actions are related to the next by things like similar ideals, similar original circumstances, the point is that groups of details that usually happen together can be used to predict people's future actions, and their skills, and their likely problems and vices of thought. 
 
